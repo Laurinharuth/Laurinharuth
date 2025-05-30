@@ -1,4 +1,4 @@
-# Olá, eu sou a Ana Laura!..zzz:
+# Olá, eu sou a Ana Laura!..zzz
 Nasci em Turvo-Pr no dia 26/03/2008, tenho 17 anos.
 
 # SOBRE MIM:
