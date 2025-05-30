@@ -1,4 +1,3 @@
-#
 #Olá, eu sou a Ana Laura!
 
 #SOBRE MIM:
